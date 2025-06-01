@@ -14,3 +14,9 @@ Ejercicio Nro 8
 Ejercicio Nro 9
 
 ![image](https://github.com/user-attachments/assets/ca64d8d1-3e9d-4d8a-aef7-81a9de243956)
+
+
+Ejercicio Nro 10
+
+
+![image](https://github.com/user-attachments/assets/209a051e-03a2-4b72-a910-c2ed9fbb0223)
