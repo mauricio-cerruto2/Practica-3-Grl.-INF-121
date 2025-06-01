@@ -12,6 +12,11 @@ Ejercicio Nro 1
 
  ![image](https://github.com/user-attachments/assets/73e6803e-4b6b-489d-839f-31275f687bcc)
 
+ Ejercicio Nro 4
+
+ ![image](https://github.com/user-attachments/assets/c0bcabba-e88b-4ff7-9204-97981261d4ae)
+
+
 
  
  Ejercicio Nro 7
