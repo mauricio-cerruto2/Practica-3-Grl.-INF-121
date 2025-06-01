@@ -1,7 +1,8 @@
  Ejercicio Nro 7
 
 
- ![image](https://github.com/user-attachments/assets/e15515d4-3cac-4a5d-a7f1-ed19c2f9ae00)
+ ![image](https://github.com/user-attachments/assets/4acbb53e-3d7d-459e-9d69-7f9c5c9b45ac)
+
 
 
 Ejercicio Nro 8
