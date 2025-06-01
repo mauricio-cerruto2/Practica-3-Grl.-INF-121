@@ -3,7 +3,11 @@ Ejercicio Nro 1
 
 ![image](https://github.com/user-attachments/assets/48cf8a6f-ec98-4c4f-b6d9-c7ff78f50c4c)
 
- 
+
+ Ejercicio Nro 2
+
+ ![image](https://github.com/user-attachments/assets/65983363-3592-4f9e-a42f-183fe2b0d964)
+
  
  Ejercicio Nro 7
 
