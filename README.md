@@ -24,12 +24,20 @@ Ejercicio Nro 6
 
 ![image](https://github.com/user-attachments/assets/f44aa899-30f8-4683-82d7-4c85359aa9c9)
 Ejercicio Nro 7
+
+
 ![image](https://github.com/user-attachments/assets/e2d7459b-eacb-4ca0-9652-544505416a26)
 Ejercicio Nro 8
+
+
 ![image](https://github.com/user-attachments/assets/7f33d74a-e46c-4626-912e-ae70fa734146)
 Ejercicio Nro 9
+
+
 ![image](https://github.com/user-attachments/assets/e23854d7-75f6-46f8-ae80-efd1dba47ab3)
 Ejercicio Nro 10
+
+
 ![image](https://github.com/user-attachments/assets/41d4b20b-ebc6-4d33-882d-b5183be51f2f)
 
 
