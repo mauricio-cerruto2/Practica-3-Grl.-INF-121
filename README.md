@@ -8,4 +8,4 @@
 
 Ejercicio Nro 8
 
-![image](https://github.com/user-attachments/assets/3992a050-69a3-4592-a199-1c07742dce61)
+![image](https://github.com/user-attachments/assets/fa33ac17-009b-4ac4-9035-8bc1b5537558)
