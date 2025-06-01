@@ -8,6 +8,11 @@ Ejercicio Nro 1
 
  ![image](https://github.com/user-attachments/assets/65983363-3592-4f9e-a42f-183fe2b0d964)
 
+ Ejercicio Nro 3
+
+ ![image](https://github.com/user-attachments/assets/73e6803e-4b6b-489d-839f-31275f687bcc)
+
+
  
  Ejercicio Nro 7
 
