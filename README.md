@@ -1,3 +1,10 @@
+Ejercicio Nro 1
+
+
+![image](https://github.com/user-attachments/assets/48cf8a6f-ec98-4c4f-b6d9-c7ff78f50c4c)
+
+ 
+ 
  Ejercicio Nro 7
 
 
